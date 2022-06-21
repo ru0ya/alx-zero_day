@@ -1,1 +1,1 @@
-hakuna matata
+tuende sana
